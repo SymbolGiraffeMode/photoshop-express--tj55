@@ -1,4 +1,4 @@
-
+Get the ultimate Photoshop Express for macOS helper with custom Photoshop Express for macOS Helper | auto-enhance + color-correction. Featuring auto-enhance and color-correction,
 
 
 
